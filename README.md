@@ -3,4 +3,4 @@
 Pitching video-https://www.youtube.com/watch?v=1RVsgEecauY
 
 
-Pitching Idea-https://drive.google.com/file/d/1DsquQbmsUwK1KKssUqdb5DVt73CmYUN3/view?usp=sharing
+Pitching Idea-https://drive.google.com/file/d/1015zLw1S8UrGtixor4t1swxymJC5vAq8/view?usp=sharing
