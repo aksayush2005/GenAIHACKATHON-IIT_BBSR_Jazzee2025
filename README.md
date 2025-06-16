@@ -1,4 +1,4 @@
-# GenX_Jazzee2025
+# GenAI_Jazzee2025
 
 Pitching video-https://www.youtube.com/watch?v=1RVsgEecauY
 
