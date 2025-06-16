@@ -1,4 +1,4 @@
-# GenX_MohitRanjanNaik_Jazzee2025
+# GenX_Jazzee2025
 
 Pitching video-https://www.youtube.com/watch?v=1RVsgEecauY
 
